@@ -14,6 +14,12 @@ yes we shall make dazai shrines and yea <3 WE LOVE DAZAI !! lets yumeship togeth
 @bbq_cereal / mud
 thank u for making me a member of the dazai shrine bro T_T because we love dazai yknow like the dazai osamu yk yk yk yk dazai yk dazai from bsd 
 
+@isagi_shidou8 / bachira's n1 fan
+thanks for thw stickers on tt vro 😭 also thanks for letting me vent to u i love u back twin, and yes, we are bachisagi
+
+@elena_xwx0 / Elena
+when i met uu u were so nice wth?? also thank u for being respectful and nice and thanks for also being there for me ily too 🥹
+
 ⸜(｡˃ ᵕ ˂)⸝♡
 
 pt
